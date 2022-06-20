@@ -4,6 +4,14 @@ Notre but est de proposer des appartements simples, fonctionnels et bon marché,
 
 ![photo du batiment](img/index_background_tmp.jpg "le bâtiment")
  
+# Merci!
+
+Merci à tout le monde qui s'est déplacé pour cet anniversaire, pour ces quelques heures de chaleur, de musique, de salades, de pizza, de rencontres.
+
+Et aux absents; on pense à vous.
+
+Merci à tous et toutes.
+
 # Invitation: La coopérative fête ses 10 ans
 
 
